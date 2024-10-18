@@ -1,5 +1,5 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Handjet&size=50&letterSpacing=1&duration=2000&pause=2000&color=F77512&center=true&vCenter=true&width=600&height=69&lines=darling+your+love+is+like)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Handjet&size=50&letterSpacing=1&duration=2000&pause=2000&color=F7B038&center=true&vCenter=true&width=600&height=69&lines=walking+a+bed+of+nails+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Peralta&size=36&duration=3000&pause=1005&color=000000&background=01823F&center=true&vCenter=true&width=900&height=65&lines=can+you+feel+the+light+inside%3F+(that+fire))](https://git.io/typing-svg)
 ***
 ![ezgif-2-089efe07ed](https://github.com/user-attachments/assets/776f720b-6dcf-4b29-87bb-407ef6342605)
 ***
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Handjet&size=50&letterSpacing=1&duration=2000&pause=2000&color=149DF7&center=true&vCenter=true&width=600&height=69&lines=and+i+just+cant)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Handjet&size=50&letterSpacing=1&duration=2000&pause=2000&color=39F7F0&center=true&vCenter=true&width=600&height=69&lines=keep+on+fightin+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Peralta&size=36&duration=3000&pause=1005&color=01823F&background=000000&center=true&vCenter=true&width=900&height=65&lines=can+you+feel+the+fire%3F+(can+you+not+feel+it%3F))](https://git.io/typing-svg)
